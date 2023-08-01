@@ -1,2 +1,2 @@
-Viktor@arnhold-it.de
+arnhold-it.de
 
